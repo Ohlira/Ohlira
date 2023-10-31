@@ -9,3 +9,4 @@ Meu nome é Erick Ohlirama
  ### Você pode entrar em contato comigo. 📧 erick.amarilho@escola.pr.com 
 
  ![](https://media.tenor.com/FPmi7tLdPS0AAAAC/party-animal-party-hard.gif)
+![](https://media.tenor.com/KHPGu_miRgMAAAAC/cosplay-thor.gif)
